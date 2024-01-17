@@ -1,0 +1,1 @@
+# q-vs-chi-effective-pollock-plot
